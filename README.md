@@ -1,4 +1,4 @@
 # Team-work
-Cabbarov Nicat
+Leyla Rustemli
 Nazani Mustafayeva
-leyla Rustemli
+Nicat c.
